@@ -4,7 +4,7 @@
 
 ![Session 1 - Slide 01 - Basic Building Blocks 02](https://user-images.githubusercontent.com/1499433/134191597-b3f3d92d-41af-4aaa-8684-d0a818d1cc3a.png)
 
-
+![Session 1 - Slide 01 - Basic Building Blocks 03](https://user-images.githubusercontent.com/1499433/134191799-aabc2597-3fbf-4068-9bd0-531a7e2701a8.png)
 
 
 
