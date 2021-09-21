@@ -13,4 +13,7 @@
 ![Session 1 - Slide 05 - Head Construction Step 4](https://user-images.githubusercontent.com/1499433/134196311-b144264d-a858-455b-842e-0e2ff01aa776.png)
 
 ## 1400
+![Session 1 - Slide 06 - Head Construction Step 5](https://user-images.githubusercontent.com/1499433/134196534-86c40ab8-5103-41dd-92c0-47e2e8fad112.png)
 
+
+== WE ARE HERE ==
